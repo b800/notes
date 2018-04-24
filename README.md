@@ -1,2 +1,6 @@
-# notes
-notes and stuff
+# b800 : notes and links
+
+
+
+
+
